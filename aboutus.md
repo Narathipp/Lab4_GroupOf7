@@ -11,3 +11,7 @@ ___
 ####ชาญรุ่งเรือง จันทวารา 633020389-3 sec1 chanrungrueang
 
 ![chanrungrueang](https://avatars.githubusercontent.com/u/82648242?v=4)
+
+####นายธันยธรณ์ โสภา 633020397-4 sec1 FOLKGG
+
+![FOLKGG](https://avatars.githubusercontent.com/u/65075646?v=4)
