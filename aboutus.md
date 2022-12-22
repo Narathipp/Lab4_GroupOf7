@@ -15,3 +15,7 @@ ___
 ####นายธันยธรณ์ โสภา 633020397-4 sec1 FOLKGG
 
 ![FOLKGG](https://avatars.githubusercontent.com/u/65075646?v=4)
+
+####นายปรีชานนท์ ชาติไทย 633020404-3 sec1 SaouZADEV
+
+![SaouZADEV](https://avatars.githubusercontent.com/u/82593060?v=4)
