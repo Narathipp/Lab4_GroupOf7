@@ -8,5 +8,6 @@ ___
 
 ![SoftwereENKKz](https://avatars.githubusercontent.com/u/120541490?s=400&u=9ffd9eff47d310dbbcab2b2fefd30ca1bc1e61f6&v=4)
 
-####ชาญรุ่งเรือง จันทวารา 633020389-3 sec1 Chanrungrueang
+####ชาญรุ่งเรือง จันทวารา 633020389-3 sec1 chanrungrueang
 
+![chanrungrueang]https://avatars.githubusercontent.com/u/82648242?v=4
